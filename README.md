@@ -1,1 +1,6 @@
+
+
 # SQL-QUERY-SOLUATION
+
+subha ghanta 
+14400119041
